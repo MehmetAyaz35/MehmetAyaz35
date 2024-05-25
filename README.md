@@ -11,4 +11,4 @@
 💬 You can reach me at mehmet.ayaz@yh.nackademin.se
 
 
-![Uploading asdfg.gif…]()
+![asdfg](https://github.com/MehmetAyaz35/MehmetAyaz35/assets/142991613/5ac8b28f-f039-462e-af90-f7360daf0333)
