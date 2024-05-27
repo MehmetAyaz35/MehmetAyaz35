@@ -8,4 +8,4 @@
 
 🌱 I'm always open to learning new technologies and methodologies.
 
-💬 You can reach me at mehmet.ayaz@yh.nackademin.se
+💬 You can reach me at mehmet.90.ayaz@gmail.com
