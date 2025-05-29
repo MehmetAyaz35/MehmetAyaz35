@@ -1,8 +1,8 @@
 ### Hello 👋, I'm Mehmet Ayaz
 
-👨‍💻 I'm currently studying Software Testing Engineering at Nackademin, and my education is coming to an end.
+👨‍💻 I have recently completed my studies in Software Testing Engineering at Nackademin and successfully finished my internship in the field.
 
-📍 At the moment, I'm doing an internship in the field and actively looking for job opportunities where I can continue to grow and apply my skills.
+📍 I am now actively seeking job opportunities where I can continue to grow and apply my skills.
 
 🎯 I'm committed to specializing in IT and constantly improving my technical knowledge.
 
